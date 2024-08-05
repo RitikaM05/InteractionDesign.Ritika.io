@@ -1,1 +1,1 @@
-# Interaction-Design-Ritika
+# InteractionDesign.Ritika.io
